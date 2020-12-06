@@ -1,1 +1,1 @@
-# PotatoChips
+# Potato Parata
